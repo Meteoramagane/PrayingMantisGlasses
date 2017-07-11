@@ -1,3 +1,3 @@
 # PrayingMantisGlasses
 
-Harasho my dood~
+Hello indeed
